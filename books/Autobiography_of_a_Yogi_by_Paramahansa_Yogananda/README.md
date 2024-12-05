@@ -49,3 +49,6 @@ to decapitate one's self. Intelligence is rightly guided only after the mind has
 inescapability of spiritual law."
 
 All nice discriminations are lost to the man of elemental lusts.
+
+"Man in his waking state puts forth innumerable efforts for experiencing sensual pleasures; when the entire group 
+of sensory organs is fatigued, he forgets even the pleasure on hand and goes to sleep in order to enjoy rest in the soul, his own nature," Shankara, the great Vedantist, has written. "Ultra-sensual bliss is thus extremely easy of attainment and is far superior to sense delights which always end in disgust." 
